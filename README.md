@@ -1,0 +1,1 @@
+/home/student/Desktop/Screenshot from 2025-12-02 11-52-54.png
